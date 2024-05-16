@@ -5,3 +5,4 @@ Wariaci są na pogotowiu 24/7/366 dni na rok przez nich nie ma na nic czasu i pr
 Dla mnie GitHub jest realny a Elon Mask jest snem w szkole przetrwania koszmarze na początku jest ok po tem się sypie wszystko. Przez nich każdy pracuje nie jak na Ted czy TV tylko jest w fabryce pracuje na zasoby naturalne jest górnikiem czy rolnikiem.
 Dziękuje za uwagę i przepraszam za moje pomysły. Wiem wy jesteście hobystami. Tych co znam to 112. Kocham GitHub. A teraz muszę iść napisałem jak ma wyglądać urządzenie i proejkt końcowy. 
 Nie ma czasu na miłość w pogoni za pracą dlatego to robię chce mieć czas na miłość z kobietą. 
+Można na tym Vois AI BCI zarobić a co za tym idzie są tam offline wszystkie projekty i zarobek dla GitHub.
