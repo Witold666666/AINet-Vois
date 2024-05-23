@@ -88,3 +88,4 @@ Timo Tolki o nich z tych z przyszłości śpiewał cyniczne piosenki. Tak te z p
 Średniowieczny i kumunistyczny młotodzierczy Murmańsk ich nie chce tych z przyszłości i żydzi z Germanami dla nich to oszuści. A tak jest spokuj. 
 Najwysi sędziowie ich nie chcą. 
 Więcej nie wiem o tych z przyszłości co ich teraz wypychają z filmu co ludzie powiedzą watą do muzeum przyszłości... 
+Ja jestem tylko kronikarzem przyszłości taśmy o nich po woli są kasowane. Tyle po nich pozostało kiedyś będą o nich encyklopedie z Murmańska. 
