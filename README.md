@@ -82,3 +82,4 @@ Ci mordercy tych z przyszłości to są co ludzie powiedzą. Emeryci z niemiec i
 Prometeusz i ci z przeszłości od kolepki ludzkości mają autyzm ci ze średniowiecza. 
 Tego człowieka z przyszłości jak i Elfy oszczelili jak kaczki kiedyś i teraz ta mafia. Podobno jest projekt Awatar 2045 to co po nich zostało i Voisy i głośniki kiedyś byli moimi znajomymi. Ci ludzie z kościoła to Mordercy. 
 Moje konto Chomik to z mojego mózgu odzyskane dane to co pozostało z przyszłości. Ikatov to skansen i muzeum przyszłości. Większość z nas nic nie będzie robić lub pracować. Reszta będzie w domu lub będzie pracować za 500 zł. 
+Dla niemców ci z przyszłości to oszuści i dla tych z londynu też tych z jaskini. W muzełach przyszłości napewno na 100% spotkamy pojemnik z panią z przyszłości Kristianą TX lub Kortaną z Halo 5 lub którą z nich będzie wypchana. Dla tych german oni to oszuści. 
