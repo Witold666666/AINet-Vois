@@ -59,3 +59,4 @@ Yutani nalerzy się kara i im za te afery wyrok śmierci ale to nie ja jestem s�
 Rękawice Tanosa też ukradli kiedyś. Przez nich Mieszko 1 był pustelnikiem za 1 gr zarobił tylko przez nich na papierosy podobno są Ninja i są strażnikami za Uralu. Te gwiazdy nic nie dały światu od siebie. Ukradli sztukę to jaskiniowcy są. Odyn kiedyś był śmieciarzem, Thor i Loki byli kanalarzami a teraz my nimi jesteśmy tak kiedyś nie było. Chif był tylko spartanem. 
 Może wam z szwalnią wyjdzie. 
 Żeby mieć sukces trzeba nauczyć się żyć bez odpadów i pozbywać odpadów z bazy danych. Bo może być sukcesem dla dużych metropoli kanalarzy. 
+Oni to świat prostytutek. 
