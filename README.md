@@ -45,3 +45,4 @@ Przez nich i NSA te psy nie można nic sprzedać nawet w lobardzie i podają si�
 A Oni piszą po tem tak tu Eliza Cassan kopiraiter z komuny dużych miast nadaje z Watikanu. Eliza Cassan The mormli Laif iniżynieria odwrotna lata 1970 1960 ze śmietnika hipisi Watikan.  
 Na górze jest jakiś egipcjanin i pan bateryjka smok lub hish. 
 Musicie opracować swój AI-Net aby baterie wyprzeć. Generator. 
+To co dałem jest to Szwalnia z drukarakmi kwantowymi i robotyką na Vois lub dobry laptop Serwer. Jedynym raunkiem dla biznesu jest Prywatyzacjia kapitalizmu i kapitału. 
