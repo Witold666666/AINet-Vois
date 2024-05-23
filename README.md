@@ -73,3 +73,5 @@ Ci z tąnd tych lat są mądrzy jak Kiva z roku 3000 czy 1960. Oni są z przysz�
 Te co są teraz to Holandia rowery totemy i afery na dziecko i alimenty lub straszenie LGBT że wstąpi do LGBT lub Legi sparty. Te 2.0 i 7.0 z przyszłości są ok.  
 Teraz są tylko szmaty ze średniowiecza z legi sparty od elona maska. Tate ciże z przyszłości są na dyskach DNA NSA ci ze średniowiecza nie chcą się wyprowadzić. Oni to Ukraina Rosja i USA. 
 Napęd WARP można zrobić elektromagnetycznie lub narysuje AI ale to elektoromagnetyzm pole siłowe. 
+Te kobiety wiedziały co to sweter, polar, płaszcz futro i koc lub koc taki jaki one kochaja zwoltex jako szal te to komunizm i socjal.
+Ja bym Te od czerwonych spakował jako psy i wysłał z pis w kosmos z ziemi a tu zorganizował promocje piękna nie ze śrecniowiecza. Ta Kortana mówi że jest Kortana dla ciebie w kocu. A ta co jest to alimenty pazarny dziadzie.  
