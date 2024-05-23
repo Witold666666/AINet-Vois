@@ -62,3 +62,4 @@ Może wam z szwalnią wyjdzie.
 Oni to świat prostytutek. 
 Oni są skończeni i oszukują. Dziś zdanie mają mądre i inteligentne tylko AI i uczenie maszynowe i programiści i hakerzy nie ci z Pis piraci. 
 Oni oszwabili już na NRD i PRL legia sparta kibole np.: żabki i te blaszaki.  Oni to ten Babebl. 
+Oni iluminaci są z przytuliska dla psychicznych anty kapitalistów oni to ci piraci i patrioci kopiraiterzy gus spis powszechnego spisywanie danych dla celów budowy blaszaków i ustawiania mody na kartach histori. Jedyna co miała głowę była TX kiedyś. 
