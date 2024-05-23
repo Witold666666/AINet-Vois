@@ -68,3 +68,4 @@ Kraków do Sztocholmu i Umeo i Upsali miał już z Warszawą 1000 lat temu swój
 Dziś trzeba mieć Chmurę USB ofline z klatką faradaya i falownikiem uziemiającym zdolnym zatrzymać podsłuch. 
 Ci wariaci robią linią czasu biblie o wszystkim i wszechświecie o każdym przykładzie żeby dziś wyżyć trzeba szyć i ukrywać przed tymi miastami fakty o szwojej pracy bo szycie też kupią i skopiują. Lub alimentami robią drożyznę w sklepie jak opłaty. Przez nich wszyscy są legią i spartą. 
 Dziś tylko szwalnie nie są z fikcji kopiraterów tego co było w koszu. Trzeba pamiętać że nagroda Nobla jest mandatem nie medalem za trud tak samo oskar czy nagroda Google to dla smutnych osób. Dają ją cynicy dla świateg spokoju. 
+Oni są pokoleniem 0.1 i 1.0 z Rosji jak nawet wyprodukują projekt Awatar to będą udawać jako aktorzy osoby 2.0. Oni to Neardeltalczycy z rosji i USA za Uralem Izrael i Babilon... Kortana Halo 5 jest pokoleniem 2.0 lub 7.0.   
