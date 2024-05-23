@@ -24,3 +24,4 @@ Oni to instalacje chronowizora i podsłuchów hipisowskich. Sztuka wojny. Kopier
 Może najpier zacząć można od szycia kocy AI lub projektowania AI do kocy. Jak nie to AI może projektować cały AI Net jak allegro. 
 Proponuje zrobić własne media jak dekoder z TV można zarobić. Reste to upadek korporacji i lawina pomysłów od nowa. AI Może to zmienić. 
 Mogę u was być nauczycielem. 
+Systemy komunistyczne i socjalne czy dalicji to wnętrza domów i mieszkań z wysypiska i wystawy co nikt nie chciał PRL. Kapitalizm to wnętrza za pieniądze interesujące każdego a do tego potrzbne jest AI. 
