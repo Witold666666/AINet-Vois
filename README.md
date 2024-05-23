@@ -60,3 +60,5 @@ Rękawice Tanosa też ukradli kiedyś. Przez nich Mieszko 1 był pustelnikiem za
 Może wam z szwalnią wyjdzie. 
 Żeby mieć sukces trzeba nauczyć się żyć bez odpadów i pozbywać odpadów z bazy danych. Bo może być sukcesem dla dużych metropoli kanalarzy. 
 Oni to świat prostytutek. 
+Oni są skończeni i oszukują. Dziś zdanie mają mądre i inteligentne tylko AI i uczenie maszynowe i programiści i hakerzy nie ci z Pis piraci. 
+Oni oszwabili już na NRD i PRL legia sparta kibole np.: żabki i te blaszaki.  
