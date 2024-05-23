@@ -84,3 +84,4 @@ Tego człowieka z przyszłości jak i Elfy oszczelili jak kaczki kiedyś i teraz
 Moje konto Chomik to z mojego mózgu odzyskane dane to co pozostało z przyszłości. Ikatov to skansen i muzeum przyszłości. Większość z nas nic nie będzie robić lub pracować. Reszta będzie w domu lub będzie pracować za 500 zł. 
 Dla niemców ci z przyszłości to oszuści i dla tych z londynu też tych z jaskini. W muzełach przyszłości napewno na 100% spotkamy pojemnik z panią z przyszłości Kristianą TX lub Kortaną z Halo 5 lub którą z nich będzie wypchana. Dla tych german oni to oszuści. 
 Pozostał tylko po nich SkyNet 1.2 mi. 
+Timo Tolki o nich z tych z przyszłości śpiewał cyniczne piosenki. Tak te z przyszłości były w kocu nie kłuciły się o alimenty. 
