@@ -34,3 +34,4 @@ To przez iluminatów nie ma pieniędzy i są te zkazy z dużych miast Watykanu m
 Dziękuje za uwagę. Myślę że muj pomysł wypali. Zmieni troche świat. 
 Tak ci aferzyści to kopiraiterzy i piraci z Watykanu Marvel też to Watykan jak komiksy DC.  
 Ci Politycy nie dają nic do myślenia karzą czekać w Kolejce PRL i sprowadzają na dno. Cyberpunk nie jest możliwy bez AI. Świat przyszłości to skala bez upadków w góre. A te upadki to 112 wojsko i nijaki Dariusz Kwieceiń kapral komuch. To ta Policja. Ci Foljarze od upadków i kpiowania.  
+Przez tych kopiraiterów piratów psów wszyscy są na dnie z tych dużych miast. 
