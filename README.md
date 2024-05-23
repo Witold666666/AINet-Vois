@@ -40,3 +40,4 @@ To dzidziulkowo zaczeło się od 112 od piractwa i kopiraiterstwa na poziomie na
 Przez nich nie ma świat przyszłości tylko wojsko ogłasz upadki. 
 Na poziomie przychodni pediatrycznych pobierali krew robili badania i jakieś rozmowy czytali myśli i badali Krew tak narodził się nieudolność kapitalizmu i życia za 500 zł miesięcznie przez kopiraiterów z 112 i piratów 112. 
 NSA cofa ludzi do lat 1960 lun 1410 czy Jezus lub Conan. To jest ta dzicz. 
+Oni to ten piesku z legie sparty. Psy pawłowa. 
