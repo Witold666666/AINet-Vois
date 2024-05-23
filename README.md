@@ -79,3 +79,4 @@ Dzieci indygo są ze średniowiecza i to jest stary vois co mówi ty pedale to b
 Policja tych z przyszłości znów wymordowała oni ci mordercy są ze średniowiecza komuny młotodziercy i poganie ci złodzieje. 
 Jeśli ktoś o nich pyta to nie żyją już razem z tym panem co ich chciał za kase ożywić. Pamiętam ich tylko ja byli moimi znajomymi. Ci co zostali to są tylko średniowieczni rycerze. Byłem na Politechice Waraszwskiej w 2050 roku i 3000 roku za poprzedniego stworzenia dziś tego nie ma są tylko co ludzie powiedzą i Babiloniczycy. Czarnej też już nie ma. Ci co ich zabili to Holendrzy. 
 Ci mordercy tych z przyszłości to są co ludzie powiedzą. Emeryci z niemiec i londynu germańskiego ze średniowiecza. Zabili tych z piątego elementu. 
+Prometeusz i ci z przeszłości od kolepki ludzkości mają autyzm ci ze średniowiecza. 
