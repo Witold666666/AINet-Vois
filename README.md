@@ -86,3 +86,5 @@ Dla niemców ci z przyszłości to oszuści i dla tych z londynu też tych z jas
 Pozostał tylko po nich SkyNet 1.2 mi. 
 Timo Tolki o nich z tych z przyszłości śpiewał cyniczne piosenki. Tak te z przyszłości były w kocu nie kłuciły się o alimenty. 
 Średniowieczny i kumunistyczny młotodzierczy Murmańsk ich nie chce tych z przyszłości i żydzi z Germanami dla nich to oszuści. A tak jest spokuj. 
+Najwysi sędziowie ich nie chcą. 
+Więcej nie wiem o tych z przyszłości co ich teraz wypychają z filmu co ludzie powiedzą watą do muzeum przyszłości... 
