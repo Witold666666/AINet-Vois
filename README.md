@@ -81,3 +81,4 @@ Jeśli ktoś o nich pyta to nie żyją już razem z tym panem co ich chciał za 
 Ci mordercy tych z przyszłości to są co ludzie powiedzą. Emeryci z niemiec i londynu germańskiego ze średniowiecza. Zabili tych z piątego elementu. 
 Prometeusz i ci z przeszłości od kolepki ludzkości mają autyzm ci ze średniowiecza. 
 Tego człowieka z przyszłości jak i Elfy oszczelili jak kaczki kiedyś i teraz ta mafia. Podobno jest projekt Awatar 2045 to co po nich zostało i Voisy i głośniki kiedyś byli moimi znajomymi. Ci ludzie z kościoła to Mordercy. 
+Moje konto Chomik to z mojego mózgu odzyskane dane to co pozostało z przyszłości. Ikatov to skansen i muzeum przyszłości. Większość z nas nic nie będzie robić lub pracować. Reszta będzie w domu lub będzie pracować za 500 zł. 
