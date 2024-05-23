@@ -90,3 +90,4 @@ Najwysi sędziowie ich nie chcą.
 Więcej nie wiem o tych z przyszłości co ich teraz wypychają z filmu co ludzie powiedzą watą do muzeum przyszłości... 
 Ja jestem tylko kronikarzem przyszłości taśmy o nich po woli są kasowane. Tyle po nich pozostało kiedyś będą o nich encyklopedie z Murmańska. 
 Ci z filmów żyją są ze średniowiecza ale oni też powoli giną. Zostaną tylko komuniści co ludzie powiedzą. Tyle o nich bo ktoś o nich pytał. 
+Oni to są drodzy jak Cerrfur teraz jest to skansen morza i rzeki Ikatova. 
