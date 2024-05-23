@@ -42,3 +42,4 @@ Na poziomie przychodni pediatrycznych pobierali krew robili badania i jakieś ro
 NSA cofa ludzi do lat 1960 lun 1410 czy Jezus lub Conan. To jest ta dzicz. 
 Oni to ten piesku z legie sparty. Psy pawłowa. 
 Przez nich i NSA te psy nie można nic sprzedać nawet w lobardzie i podają się za rodzine z Autyzmem grupa Elona Maska i metropoli. Nic przez nich nie ma cenny.  
+A Oni piszą po tem tak tu Eliza Cassan kopiraiter z komuny dużych miast nadaje z Watikanu. Eliza Cassan The mormli Laif iniżynieria odwrotna lata 1970 1960 ze śmietnika hipisi Watikan.  
