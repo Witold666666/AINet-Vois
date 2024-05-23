@@ -63,3 +63,4 @@ Oni to świat prostytutek.
 Oni są skończeni i oszukują. Dziś zdanie mają mądre i inteligentne tylko AI i uczenie maszynowe i programiści i hakerzy nie ci z Pis piraci. 
 Oni oszwabili już na NRD i PRL legia sparta kibole np.: żabki i te blaszaki.  Oni to ten Babebl. 
 Oni iluminaci są z przytuliska dla psychicznych anty kapitalistów oni to ci piraci i patrioci kopiraiterzy gus spis powszechnego spisywanie danych dla celów budowy blaszaków i ustawiania mody na kartach histori. Jedyna co miała głowę była TX kiedyś. 
+Komunicja to te alimenty z 112 i drożyzna na sprzedaż stare z kosza do magazynu nowe z roku 3000. Linia czasu i 1000 lat rozwoju do tyłu. 
