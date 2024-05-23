@@ -85,3 +85,4 @@ Moje konto Chomik to z mojego mózgu odzyskane dane to co pozostało z przyszło
 Dla niemców ci z przyszłości to oszuści i dla tych z londynu też tych z jaskini. W muzełach przyszłości napewno na 100% spotkamy pojemnik z panią z przyszłości Kristianą TX lub Kortaną z Halo 5 lub którą z nich będzie wypchana. Dla tych german oni to oszuści. 
 Pozostał tylko po nich SkyNet 1.2 mi. 
 Timo Tolki o nich z tych z przyszłości śpiewał cyniczne piosenki. Tak te z przyszłości były w kocu nie kłuciły się o alimenty. 
+Średniowieczny i kumunistyczny młotodzierczy Murmańsk ich nie chce tych z przyszłości i żydzi z Germanami dla nich to oszuści. A tak jest spokuj. 
