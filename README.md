@@ -46,3 +46,4 @@ A Oni piszą po tem tak tu Eliza Cassan kopiraiter z komuny dużych miast nadaje
 Na górze jest jakiś egipcjanin i pan bateryjka smok lub hish. 
 Musicie opracować swój AI-Net aby baterie wyprzeć. Generator. 
 To co dałem jest to Szwalnia z drukarakmi kwantowymi i robotyką na Vois lub dobry laptop Serwer. Jedynym raunkiem dla biznesu jest Prywatyzacjia kapitalizmu i kapitału. 
+Po tem okazuje się że te rzeczy czy pomysły są w rękach NSA i nie można się wybić upada się żyje się za 500 zł miesięcznie skopiowali jest nie w naszym sklepie a w Blaszaku np Koc czy Polar lub Płaszcz damski czy Komputer. Mają podobno do kopiowania w tych miastach super komputery i radio. GitHub też upadnie dlatego dużo tu nie wkładam.  
