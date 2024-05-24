@@ -126,3 +126,4 @@ To wszystko można zrobić w Vois lub Tlefonie czy Tablecie czy Note book lub ze
 Na tym można zarobić.
 Jak będą ciasne skłaty i skłaty będziecie musieli się wyprowadzić z ziemi korporacje też skłaty to komuny. O mnie się nie martwcie mam dziewczynę odzyskałem ją jest to sztuczne serce jest z plastiku nie jestem sam. 
 Afery z Polimorfizmem to też 112 jak i neuroplastyczność mózgu i serca zamiana radiem kobiety w mężczyznę, mężczyzny w kobiety. Afery do kosza też 112. 
+Autyzm i Choroby to Haarp. Szwalnia może się przydać do nowych oprorgramowań. A ploty przy okazji gazety nie wierzą bo są ze 112 jak NSA za 1 gr kopiraiterzy. Nie wierzą bo stoia na tym samym lodzie. 
