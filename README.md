@@ -112,3 +112,4 @@ Ja was chce. Ale oni żądzą nie akceptują korupcji tylko przeszłość i tera
 Nie będzie pani Terminator bo nie ma na Akumulator. 
 Nasa musi powołać u was Szefa i się musicie wyprowadzić z Ziemi bo nie ma miejsca dla mnie. Ja jestem u siebie. Pewnie firmą dadzą renty i leki ale leki na strość starzenie się. 
 Co do Afer to Watykan podaje Eutanazji. 
+Może wam coś nie pujść. Co do Watykanu oni chcą uczyć szycia ubrań i takania kocy czasem magi. Watykan jest za mitologią o magi. 
