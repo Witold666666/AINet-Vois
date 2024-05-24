@@ -103,3 +103,4 @@ Watykan zamknie w przyszłości wszystkie firmy. Mam swój chronowizor to wiem. 
 Może ubogich ładnie wyglądających. 
 Watykan nie chce tu korporacji i sprzętu elektronicznego musicie się pogodzić z żałobami rodziny. Oni to Policja 112 pare osób mi zabili 1 odali nie chcą tu figurantów. Korporacje będą miały sprawy w sądzie. Nie jestem 112 a byłym właścielem i Bogiem bez praw. Straż miejska teraz rządzi. 
 Nie chcą być mądrzy po szkodzie. Więc jeśli ktoś wam powie zamknijcie firmy firmę to już wcześniej wiecie. 
+Ci znad Uralu inowiercy nie chcą przyszłości i informatyki kiedyś walczyli ze smokami dziś będą walczyć z informatykami. Nie chcą was. Podziękują i powieszą. Elona Voisa też nie chcą. Dałem szwalnie ale też jej nie będa chcieli. Powiedzmy że wam powiedziałem troche o przyszłości co będzie z przyszłością teraz. 
