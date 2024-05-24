@@ -107,3 +107,4 @@ Ci znad Uralu inowiercy nie chcą przyszłości i informatyki kiedyś walczyli z
 Nie ma technologi i generatorów wolnej energi aby nie było rachunków za energię elektryczną dlatego te technologie są z fikcji. Moją żonę mam w biomodach bo pewne dzieci zajeły mi mieszkanie na świecie i musi mieszkać ze mną w tajemnicy spotykamy się w tajemnicy ale to nasza sprawa. Co do PGE nie ma generatora na wolną energię silnego aby była przyszłość z fikcji. Problem to rachunki. Każdy kolejny wat i nowy człowiek równa się rachunek. Nieługo będą wyganiać w kosmos lub uśmiercać. 
 To ludzie grają że jakoś to będzie. 
 Przyszłości nie będzie z powodów etycznych i moralnych nie ekonomicznych. Ludzie chcą świetego spokoju od imprez i euro imprez masowych. Chcą ciszy.  
+Z Tego co czytałem z ich książek i myśli nie chcą tu żuli i żulerni chcą abyście się spakowali i polecieli w kosmos lub was spakują w zaświaty. 
