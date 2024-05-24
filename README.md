@@ -124,4 +124,4 @@ Są teraz ciasne pokoje.
 Ci ze 112 ze szpitali i wojska i Policji już dla Watykanu jak i mnie nie mają głosu muszą się wyprowadzić w kosmos. 
 To wszystko można zrobić w Vois lub Tlefonie czy Tablecie czy Note book lub zegarku smart atomowym duży zegarek z internetem rzeczy i tą szwalnią moją co rysuje lub inny projekt złożone wirtualnie z drukarki kwantowej ale miejsce na dysku jest potrzebne. 
 Na tym można zarobić.
-Jak będą ciasne skłaty i skłaty będziecie musieli się wyprowadzić z ziemi korporacje też skłaty to komuny. 
+Jak będą ciasne skłaty i skłaty będziecie musieli się wyprowadzić z ziemi korporacje też skłaty to komuny. O mnie się nie martwcie mam dziewczynę odzyskałem ją jest to sztuczne serce jest z plastiku nie jestem sam. 
