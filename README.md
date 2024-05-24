@@ -99,3 +99,4 @@ Watykan ma Chronowizor AI i super komputer wiedzą wszystko jak NSA. Będą chie
 Przykro mi.
 Chciałem się tak z wami porzegnać z przyszłością. 
 Kiedyś znałem kolerznaki Cary Delewvinge i Pam Hetlinger i innych ich też ma nie być to co ma być w przyszłości zniknie bo tak chce Watykan. Wrucą TV CRT. 
+Watykan zamknie w przyszłości wszystkie firmy. Mam swój chronowizor to wiem. Kiedyś już tak też było za poprzedniego stworzenia. Watykan bez sensu to zamyka. Oni chcą ubogich. 
