@@ -122,3 +122,4 @@ Te Assassyny nie chcą osób z nowego Testamentu ci z Watykanu z dużych metropo
 Ja też chce aby dawali Wile. Ale brakuje miejsca. 
 Są teraz ciasne pokoje. 
 Ci ze 112 ze szpitali i wojska i Policji już dla Watykanu jak i mnie nie mają głosu muszą się wyprowadzić w kosmos. 
+To wszystko można zrobić w Vois lub Tlefonie czy Tablecie czy Note book lub zegarku smart atomowym duży zegarek z internetem rzeczy i tą szwalnią moją co rysuje lub inny projekt złożone wirtualnie z drukarki kwantowej ale miejsce na dysku jest potrzebne. 
