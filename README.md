@@ -125,3 +125,4 @@ Ci ze 112 ze szpitali i wojska i Policji już dla Watykanu jak i mnie nie mają 
 To wszystko można zrobić w Vois lub Tlefonie czy Tablecie czy Note book lub zegarku smart atomowym duży zegarek z internetem rzeczy i tą szwalnią moją co rysuje lub inny projekt złożone wirtualnie z drukarki kwantowej ale miejsce na dysku jest potrzebne. 
 Na tym można zarobić.
 Jak będą ciasne skłaty i skłaty będziecie musieli się wyprowadzić z ziemi korporacje też skłaty to komuny. O mnie się nie martwcie mam dziewczynę odzyskałem ją jest to sztuczne serce jest z plastiku nie jestem sam. 
+Afery z Polimorfizmem to też 112 jak i neuroplastyczność mózgu i serca zamiana radiem kobiety w mężczyznę, mężczyzny w kobiety. Afery do kosza też 112. 
