@@ -109,3 +109,4 @@ To ludzie grają że jakoś to będzie.
 Przyszłości nie będzie z powodów etycznych i moralnych nie ekonomicznych. Ludzie chcą świetego spokoju od imprez i euro imprez masowych. Chcą ciszy.  
 Z Tego co czytałem z ich książek i myśli nie chcą tu żuli i żulerni chcą abyście się spakowali i polecieli w kosmos lub was spakują w zaświaty. 
 Ja was chce. Ale oni żądzą nie akceptują korupcji tylko przeszłość i teraźniejszość do roku 2000. Oni to Babilon ci komuniści.  
+Nie będzie pani Terminator bo nie ma na Akumulator. 
