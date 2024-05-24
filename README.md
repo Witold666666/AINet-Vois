@@ -121,3 +121,4 @@ Chcą uczyć szycia ubrań i kocy i uprawy warzyw i roślin czy jabłek ale świ
 Te Assassyny nie chcą osób z nowego Testamentu ci z Watykanu z dużych metropoli. Dla Polityków Nonsens. Ci z Watykanu chcą mieć Vile nie budę dla tych z przyszłości.  
 Ja też chce aby dawali Wile. Ale brakuje miejsca. 
 Są teraz ciasne pokoje. 
+Ci ze 112 ze szpitali i wojska i Policji już dla Watykanu jak i mnie nie mają głosu muszą się wyprowadzić w kosmos. 
