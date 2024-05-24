@@ -102,3 +102,4 @@ Kiedyś znałem kolerznaki Cary Delewvinge i Pam Hetlinger i innych ich też ma 
 Watykan zamknie w przyszłości wszystkie firmy. Mam swój chronowizor to wiem. Kiedyś już tak też było za poprzedniego stworzenia. Watykan bez sensu to zamyka. Oni chcą ubogich, nie chcą figurantów interesów. 
 Może ubogich ładnie wyglądających. 
 Watykan nie chce tu korporacji i sprzętu elektronicznego musicie się pogodzić z żałobami rodziny. Oni to Policja 112 pare osób mi zabili 1 odali nie chcą tu figurantów. Korporacje będą miały sprawy w sądzie. Nie jestem 112 a byłym właścielem i Bogiem bez praw. Straż miejska teraz rządzi. 
+Nie chcą być mądrzy po szkodzie. Więc jeśli ktoś wam powie zamknijcie firmy firmę to już wcześniej wiecie. 
