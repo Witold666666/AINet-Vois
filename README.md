@@ -98,3 +98,4 @@ Jak będziecie chcieli przyszłości będą wam śpiewać zostań pies.
 Watykan ma Chronowizor AI i super komputer wiedzą wszystko jak NSA. Będą chieli zamknąć w przyszłości korporacje zostaną sklepy sporzywcze tylko reszta to skanseny.
 Przykro mi.
 Chciałem się tak z wami porzegnać z przyszłością. 
+Kiedyś znałem kolerznaki Cary Delewvinge i Pam Hetlinger i innych ich też ma nie być to co ma być w przyszłości zniknie bo tak chce Watykan. Wrucą TV CRT. 
