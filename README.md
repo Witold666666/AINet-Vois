@@ -120,3 +120,4 @@ Drechów z technologią też tu nie chcą ci z Watykanu. Ja drechów też tu nie
 Chcą uczyć szycia ubrań i kocy i uprawy warzyw i roślin czy jabłek ale świerzych bez chemi tak jak nie wyprowadzą się lub pewne osoby nie zrezygnują z czegoś to będzie elektronicznie wszystko robione.   
 Te Assassyny nie chcą osób z nowego Testamentu ci z Watykanu z dużych metropoli. Dla Polityków Nonsens. Ci z Watykanu chcą mieć Vile nie budę dla tych z przyszłości.  
 Ja też chce aby dawali Wile. Ale brakuje miejsca. 
+Są teraz ciasne pokoje. 
