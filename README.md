@@ -128,3 +128,4 @@ Jak będą ciasne skłaty i skłaty będziecie musieli się wyprowadzić z ziemi
 Afery z Polimorfizmem to też 112 jak i neuroplastyczność mózgu i serca zamiana radiem kobiety w mężczyznę, mężczyzny w kobiety. Afery do kosza też 112. 
 Autyzm i Choroby to Haarp. Szwalnia może się przydać do nowych oprorgramowań. A ploty przy okazji gazety nie wierzą bo są ze 112 jak NSA za 1 gr kopiraiterzy. Nie wierzą bo stoia na tym samym lodzie. 
 Jaki jest iluminati autystyczny SkyNet TX Kristiana. Jak komuś zrobiła krzywdę robiła krew kupa dupa do klopa. Kobieta ze stali. 
+Kristiana i te dresiary obecne kobiety to bez guścia z reklamy olej kujawski z 1 tłoczenia. 
