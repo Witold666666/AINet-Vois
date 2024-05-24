@@ -115,3 +115,4 @@ Co do Afer to Watykan podaje Eutanazji.
 Może wam coś nie pujść. Co do Watykanu oni chcą uczyć szycia ubrań i takania kocy czasem magi. Watykan jest za mitologią o magi. 
 Oni z przeszłości nie chcą przyszłości i dziekują i żegnają te osoby. Tak mają autyzm ci z watykanu moja diagnoza ale oni wiedzą lepiej. Polityków też nie chcą i imprez. Nie chcą też ciasnoty.   
 Watykan kiedyś nie wytrzyma i wygoni Korporacje dla nich korporacje to dzidziulkowo. 
+Galaktyka Sobrero i Andromeda jest wolna Andromeda troche zajęta. 
