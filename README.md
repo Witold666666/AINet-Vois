@@ -133,3 +133,4 @@ Ja ministerstwu sportu i polityki pro rodzinnej i alimentacyjnej dla sportu stre
 Kim była Kristiana z 1 tłoczenia TX morda darła halo czego grzeczniej lub prykała. Kim była 112 i złodziej z wojska. Dzieci kwiaty i indygo to dzieci wojowników i 112 z autyzmem nie myślą o byciu w parze z kobietą. 
 Grzesiek Buczyk z CFR zlecał gwałty i morderstwa kobiet w kocu wiedź. 
 Obecna piramida MLM populacji to janosiki 112 CFR. 
+Po wiedźmach madam w płaszczu i kocu zostały tylko piraty. To były ofiary kierowców pod ściane z Izraela. 
