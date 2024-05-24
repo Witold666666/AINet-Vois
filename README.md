@@ -116,3 +116,5 @@ Może wam coś nie pujść. Co do Watykanu oni chcą uczyć szycia ubrań i taka
 Oni z przeszłości nie chcą przyszłości i dziekują i żegnają te osoby. Tak mają autyzm ci z watykanu moja diagnoza ale oni wiedzą lepiej. Polityków też nie chcą i imprez. Nie chcą też ciasnoty.   
 Watykan kiedyś nie wytrzyma i wygoni Korporacje dla nich korporacje to dzidziulkowo. 
 Galaktyka Sobrero i Andromeda jest wolna Andromeda troche zajęta. 
+Drechów z technologią też tu nie chcą ci z Watykanu. Ja drechów też tu nie chce. 
+Chcą uczyć szycia ubrań i kocy i uprawy warzyw i roślin czy jabłek ale świerzych bez chemi tak jak nie wyprowadzą się lub pewne osoby nie zrezygnują z czegoś to będzie elektronicznie wszystko robione.   
