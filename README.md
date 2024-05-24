@@ -111,3 +111,4 @@ Z Tego co czytałem z ich książek i myśli nie chcą tu żuli i żulerni chcą
 Ja was chce. Ale oni żądzą nie akceptują korupcji tylko przeszłość i teraźniejszość do roku 2000. Oni to Babilon ci komuniści.  
 Nie będzie pani Terminator bo nie ma na Akumulator. 
 Nasa musi powołać u was Szefa i się musicie wyprowadzić z Ziemi bo nie ma miejsca dla mnie. Ja jestem u siebie. Pewnie firmą dadzą renty i leki ale leki na strość starzenie się. 
+Co do Afer to Watykan podaje Eutanazji. 
