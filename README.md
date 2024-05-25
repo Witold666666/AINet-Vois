@@ -167,3 +167,4 @@ Czerwoni ze stadionu i Kali Linux NSA są z kostuchą skończeni ci agenci co ka
 Inowiercy z drako drakoni smoki i starożytni grecy z rzymianami i izraelitami są skoniczeni bo wszystko wam po śmierci wrzucają do kosza to jest ten Cham NSA śmierć też jest tylko na papierze watykanu jak zabijanie Harrp. 
 Oni to mafia piratów. 
 Co do Lilit jej imie to Marcelina 2 to Lilit i naziwsko a imie 1 Marcelina zna kostuche potrafi się z planety na planetę teleportować. Ale oni tego nie mówią mówią że są w zaświatach. 
+AI Net matrix SkyNet jest jak rękawica nieskończoności. Maik i Marcelina i Bąk karzą za każdym razem robić zakupy od nowa od nowych narodzin cyklicznie od eonów lat umierać na raka jak zdarta płyta. Na 4 planetach jak reklamował Bąk. To jest ta mafia. A kali to bezpieka drako drakonia 120 do kosza 121 ksiądz nowe znów do kosza nowe narodziny znów do kosza. A tak można ich ominąć oni są chorzy te kostuchy piraty komuniści od wspólnot. 
