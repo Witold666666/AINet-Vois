@@ -178,3 +178,4 @@ Oni to byli bezstalencia ta Yutani kiedyś miała brązowe włosy była z Inowł
 Najwyrzej drewnem opałowym będzie Vois Translator i Głośnik Alexa i 15W procesor i rachunki z komputer do odzyskania danych.  
 Jest sekret który znam długiego życia na ziemi ale nie można dać im kosza. Życie eony lat za 10 dolarów 60 50 zł woda i szare mydło woda do picia u czarnej togi u czarnego nie odmówią i nie wygonią powiedzą to godność człowieka ale życie na miejscu i wycieczki do watykanu bez narzekania. Inni umierają bo biorą kasę od Elona z Zus Mops lub zakładów pracy. 
 Czarna toga nie uśmierca czarny zabija i powie gej dla kobiety chce żyć jak telenowela nie dzwoni na policje a zabija. To prawda godzą się na życie za 10 dolarów lub 50 60 zł i biorąc od nich ciuchy można długo żyć eony lat ale nic się nie wie i nie mówią że jest ktoś post mafią czy psem. 
+Watykan chce się pozbyć tych mijarderów i mafi fundacji iluminatów. Dla watykanu ci ludzie to zwierzęta. 
