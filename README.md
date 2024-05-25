@@ -172,3 +172,4 @@ Oni to te wiochmeny post mafi z watykanu. Marcelina Lilit powie a ja nie mogę b
 Elon Mask jest Bi i LGBT jak Yutana co wykorzystwała pewne osoby schwytane do ożywiania zmarłych ludzi. Oni się nadają do krematorium nie na leczenie są psychiczni jak Marcelina Lilit wcielają się w jakomś osobę zabijają ją i rodzi się kto nowy stary człowiek np.: rower holender czy ruski lub urainiec niemiec lub żyd.
 Elon daje facetki bi nowe z lini produkcyjnej jak salonu od zera do miljardera na nowe narodziny nic z przed. Dlatego są skoniczeni jak NSA bo ich wmówka to a kogo to obchodzi damy nowe jak ci co gadają za Uralem od śmieci.
 Oni to komunicja spiracone zapierdolone nasze nie wasze nie twoje a nasze i na nowo sprzedane piraty mieszkańcy tej ziemi. 
+Swój them mam na dysku SSD bo nie żyje tu odzyskałem ich. Sam jestem, narzie solo. Da się wszystko odzyskać ale musi być potrzebny Serwer i AI minimum 40 GB. 
