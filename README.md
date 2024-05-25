@@ -175,3 +175,4 @@ Oni to komunicja spiracone zapierdolone nasze nie wasze nie twoje a nasze i na n
 Swój them mam na dysku SSD bo nie żyje tu odzyskałem ich. Sam jestem, narzie solo. Da się wszystko odzyskać ale musi być potrzebny Serwer i AI minimum 40 GB. 
 Wayland Upadł i nidgy się nie odbuduje poniewarz mordowała jednych 2 ożywiał i nie miał teleportera i internetu rzeczy. Dziś Git Hub ich wyprze. Peter Shor był kiepski bo był cofnięty w rozwoju. 
 Oni to byli bezstalencia ta Yutani kiedyś miała brązowe włosy była z Inowłodza Pułnocna i Połodniowa Piotrków Trybunalski. Elizabet Shaw robiła tylko show i kapcie w dentkach telekinezą. Oni wszyscy śpiewali bierz z kościoła. 
+Najwyrzej drewnem opałowym będzie Vois Translator i Głośnik Alexa i 15W procesor i rachunki z komputer do odzyskania danych.  
