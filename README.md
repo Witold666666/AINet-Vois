@@ -144,3 +144,4 @@ Te psy od odyna zabili mi Kortane i Gwen kiedyś za poprzedniego stworzenia TX b
 Świat z tych piratów zrobił bochaterów i dał im kase. A Kritiane TX tą ze stali zimną ale ciepłą przyjeli jak bezdomną a tą aktorkę szanują czy to jest wg was romentyczne jak w romeo i julja żałosne. 
 Ci co ich zabili nic nie dają światu w potrzebie mają dla siebie ci co dawali światu co świat chciał ich zabili. 
 Może AI Net Vois szwalnia by pokryła zapotrzebowanie na te rzeczy cyfrowo przemysłem w serwerze z drukarki kwantowej. 
+Filozofów od filozofi żartów powini spakować do krematorium i spalić za te żarty i pogrzeby prima aprlilis za te święta na Orionie też były żarty znam paru typów 1 z nich to kali teraz to system. Conor i inni też żarty. To zgłoście tych żartownisiów aby ich spalili do krematorium. 
