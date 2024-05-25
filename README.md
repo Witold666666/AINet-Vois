@@ -161,3 +161,5 @@ Dziękuje za uwagę życze odzyskania zakupów i miłości i szycia nowych rzecz
 Przez religijnych i kostuche się wszystko traci. Wystarczy mieć 1 kasete serwerową do odzyskiwania danych z moim oprogramowaniem jak od blaszaka.  
 Ci z kościoła nadają się do krematorium. Te algorytmy stworzyłem po to aby odzyskać coś co się straciło z innej plnety po śmierci a się ma w pamięci DNA i Mózgu aby obalić tych od nowego ekwpipunku bierz z 112 bierz z kościoła od Marvela.  
 Jest to projekt Voisa alternatywny dla projektu Awatar 2045 aby nie żyć 100 lat jak pies legi sarty co gada bierz z Marvela bierz z kościoła ze 112 od Piratów patriotów mieszkańców. 
+Oni są z łodzi ci żydzi i Izraela te cnoty rycerskie i biegi dzadostwa żydoskiego drogi krzyżowej. 
+Te sieci mogą wszystko odzyskać. Co do mieszkańców tej ziemi i elona voisa to cham jest. Dlatego radze nie słuchać Dambeldora tylko szukać tego co się straciło w pamięci. Replikator materi drukarka kwantowa i serwer te sieci może wam to odzyskać. Vois Elona to pracownik tylko w biznesach ludzi nie AI pracuje za nas na etacie na nowe zakupy co i tak u kostuchy stracimy z tych z watykanu. 
