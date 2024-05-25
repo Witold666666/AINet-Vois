@@ -159,3 +159,4 @@ Ludzie ci wymyślili polimorficzny zegarek są dla mnie fłaszywi ci z 112 aby w
 Jest taki cwaniak kostucha czy assassyn anioł cienia czy zła lub śmierci przychodzi i zabija jak Conor. Z tym projektem przy każdych nowych narodzinach można odzyskać dane z zakupów jakie kupiliśmy z pamięci DNA i mózgu czy serca.
 Dziękuje za uwagę życze odzyskania zakupów i miłości i szycia nowych rzeczy tą metodą serwerem vois. Ci co każą nam robić zakupy znów po śmierci inni każą nam robić zakupy przy nowych narodzinach. Jest to bez sensu.  
 Przez religijnych i kostuche się wszystko traci. Wystarczy mieć 1 kasete serwerową do odzyskiwania danych z moim oprogramowaniem jak od blaszaka.  
+Ci z kościoła nadają się do krematorium. Te algorytmy stworzyłem po to aby odzyskać coś co się straciło z innej plnety po śmierci a się ma w pamięci DNA i Mózgu aby obalić tych od nowego ekwpipunku bierz z 112 bierz z kościoła od Marvela.  
