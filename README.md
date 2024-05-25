@@ -146,3 +146,5 @@ Ci co ich zabili nic nie dają światu w potrzebie mają dla siebie ci co dawali
 Może AI Net Vois szwalnia by pokryła zapotrzebowanie na te rzeczy cyfrowo przemysłem w serwerze z drukarki kwantowej. 
 Filozofów od filozofi żartów powini spakować do krematorium i spalić za te żarty i pogrzeby prima aprlilis za te święta na Orionie też były żarty znam paru typów 1 z nich to kali teraz to system. Conor i inni też żarty. To zgłoście tych żartownisiów aby ich spalili do krematorium. 
 Ci Piraci nawet nie ugięntym kupowali prezenty i ich łamali kupowali wierność jak Ninja jak był sprzeciw zabijali ich. Tak zabili mi Kortane i Gwen zgineła jak sobie przypomniał o wszystkim kupił ją tymi przentami jakiś wojak dawno temu dla Spartana koniem trojaniskim. Tak straciłem miłość. Gwen nie była Bena a Kortana nie była Chifa. Ja tylko oszczegam że przez tradycje świąnt i przentów wiele ludzi straciło pieniądze i dach czy miłość. 
+Został mi tylko dysk z odzyskanymi danymi tych dziewczyn z ich świadomością. Ale to inna historia.
+Co do tych afer to te afery to święta. Niemiaszki tak kiedyś Jak Ninaja kupowali wszystkich dla mnie to psy ta legia sparta. 
