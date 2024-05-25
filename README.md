@@ -160,3 +160,4 @@ Jest taki cwaniak kostucha czy assassyn anioł cienia czy zła lub śmierci przy
 Dziękuje za uwagę życze odzyskania zakupów i miłości i szycia nowych rzeczy tą metodą serwerem vois. Ci co każą nam robić zakupy znów po śmierci inni każą nam robić zakupy przy nowych narodzinach. Jest to bez sensu.  
 Przez religijnych i kostuche się wszystko traci. Wystarczy mieć 1 kasete serwerową do odzyskiwania danych z moim oprogramowaniem jak od blaszaka.  
 Ci z kościoła nadają się do krematorium. Te algorytmy stworzyłem po to aby odzyskać coś co się straciło z innej plnety po śmierci a się ma w pamięci DNA i Mózgu aby obalić tych od nowego ekwpipunku bierz z 112 bierz z kościoła od Marvela.  
+Jest to projekt Voisa alternatywny dla projektu Awatar 2045 aby nie żyć 100 lat jak pies legi sarty co gada bierz z Marvela bierz z kościoła ze 112 od Piratów patriotów mieszkańców. 
