@@ -180,3 +180,4 @@ Jest sekret który znam długiego życia na ziemi ale nie można dać im kosza. 
 Czarna toga nie uśmierca czarny zabija i powie gej dla kobiety chce żyć jak telenowela nie dzwoni na policje a zabija. To prawda godzą się na życie za 10 dolarów lub 50 60 zł i biorąc od nich ciuchy można długo żyć eony lat ale nic się nie wie i nie mówią że jest ktoś post mafią czy psem. 
 Watykan chce się pozbyć tych mijarderów i mafi fundacji iluminatów. Dla watykanu ci ludzie to zwierzęta. 
 Tak będzie złużywać się Vois, Głośnik Alexa, Zegarek BCI EKG EEG. 
+To jest Vois i instrukcja dla kompletnych zer co nic nie mają lub chcą mieć lub odzyskać stracone jak nowe w opakowaniu. Z głośnikiem jak Alexa można nawet naprawić paznokcie bez skalpela telekinetycznie. Ten software i AI sieci neuronowe Vois służy do odzyskiwania danych i projektowania tego co się straciło czy bliską lub nową osobę. Czy do projektowania rzeczy. Jak lekarz nic nie może zrobić. AI Vois może leczyć raka. 
