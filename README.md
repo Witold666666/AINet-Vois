@@ -194,3 +194,4 @@ Prze Reptylian i ich kryzysy ich usługi Drako Drakonia bluzgała i groziła ze 
 Drako drakonia te smoki były psi. Nie było pieniędzy na 2 zł lotto. 
 A co do Kristinay TX z filmu Terminator SkyNet to pewnie jakiaś dusza smoka smoczyca smok. 
 Poszło w tych aferach o to że ksiądz miał dosyć polityków nierobów i tych ustawek i ludzi bogaczy i magnatów bo ludzi było dużo chcieli dużo pieniędzy a nie było ostanie pieniądze drukowali księża i kupi banki. 
+Ogłoślili jak 1989 roku tu na ziemi bankructwo i koniec republik radzieckich. Dlatego może ten Vois coś może komuś inwidualnie da. 
