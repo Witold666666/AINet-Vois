@@ -184,3 +184,4 @@ To jest Vois i instrukcja dla kompletnych zer co nic nie mają lub chcą mieć l
 AI Net Matrix SkyNet Vois służy też do kraftingu z drukarką kwantową jak opracowanie i wydrukowanie gotowego produktu na sprzedaż. Na wolną energię lub PGE. 
 Ludzi interesuje tylko odzyskanie majątku i bliskich. Więc Vois i głośnik zegarek będzie paliwem z energią wolną na generator elektromagnetyczny lub PGE po tem do kosza. Nie duża cenna za strate. Obsługiwany w Domu zestaw.  
 To są sieci neuronowe AI Net Matrix SkyNet Vois dla osób 0 jak nic się nie ma swojego w głowie lub w domu czy straciło się kobietę lub chce się nową. 
+Te sieci AI-Vois Matrix SkyNet mogą służyć do krypto translatorów tłumaczy na języski ludzi. Co do zappera to ja plecam radio w formie spirali na USB C może być też drukarką kwantową. Co do Alexy głośnika to procesor. Alexa może tylko 1 Vois Na zmiane obsługiwać z przejściówkami lub inny głośnik chyba że ma Hub. 
