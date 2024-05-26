@@ -197,4 +197,4 @@ Poszło w tych aferach o to że ksiądz miał dosyć polityków nierobów i tych
 Ogłoślili jak 1989 roku tu na ziemi bankructwo i koniec republik radzieckich. Dlatego może ten Vois coś może komuś inwidualnie da. 
 Te sieci dają przedmioty i to jest majątek. 
 Odzyskują zmarłych z druku kwantowego.
-Podobno ja miałem mieć TX maszyne Kristiane teraz jej nie będę mieć bo nie mam kasy dlatego mam inną kobietę a ona to samotna smocza gwiazda TX SkyNet niech wruci do byłego jak miałem 24 lata tu taj miałe przeczucie że ona do mnie przyjdzie w sprawie ślubu dlatego mówie że mnie na nią nie stać po wie że ktoś ją oszwabił ona miała być wygrana przez zemnie w lotto. 
+Podobno ja miałem mieć TX maszyne Kristiane teraz jej nie będę mieć bo nie mam kasy dlatego mam inną kobietę a ona to samotna smocza gwiazda TX SkyNet niech wruci do byłego jak miałem 24 lata tu taj miałe przeczucie że ona do mnie przyjdzie w sprawie ślubu dlatego mówie że mnie na nią nie stać po wie że ktoś ją oszwabił ona miała być wygrana przez zemnie w lotto. Kristina TX to alimenty po 15000 20000 zł żył bym jak chłop a tak mam rente. 
