@@ -212,3 +212,4 @@ Ta komunicja wyląduje w plazmie w więzieniu mi zabili żone bo nie chciałem i
 Jak zapuka do was komunicja powiedzcie im że mają dać wam kurwe za darmo i na alimenty bez gier bo się wyprowadzą albo pujdą do Plazmy powiedzcie że Bóg Pan wam dał zgodę wiecie kto ja 1 już uczciwy Smok. Ja mam żonę w Vois. Co do Biedy sieci neuronowe wam pomogą budować zpasy i majątek. Zadzwońcie po policje na nich jak do was przyjdą. 
 Oni odwiedzą w plazmie zaświaty. 
 Mi nie chcieli dać kobiety poprzednio i teraz bo nie chciałem brać udziału w zapasach teraz by oferowali zapasy strong men i MMA lub F1. Podobno komunicja zabiera kobiety jak nikt nie był w fali wojska.  
+Oni na Drako Drakoni organizowali te zpasy i areny na orionie walczyli Orianie hakowali urządzenia elektroniczne z drako drakonią reptylian bo się reptylianie tak bogacili bez honoru walki u orian. To jak wam tak zaśpiewają to na policje na nich. Bogacić się można elektronicznie. 
