@@ -192,3 +192,4 @@ Te sieci neuronowe AI Net Matrix SkyNet Vois są po to aby odzyskać majątek ko
 To było Eon temu w kosmosie na innej ziemi za innego mojego stworzenia wszechświata Ksiądz był bez sensu tam na tej innej ziemi zamknieli całe sieci usług i sklepów nic nie było w sklepie poszło o post zakupy (bardzo duże zakupy szyli PGE nie wytrzymało) ludziom. 
 Prze Reptylian i ich kryzysy ich usługi Drako Drakonia bluzgała i groziła ze smokami burzami i wojnami był kryzys a smoki były kolonią niewolniczą. Na innej ziemi zabrakło napięcia i wszystko zagasło drako drakonia na orionie to taki ksiądz na innej ziemi też był ksiądz u ludzi tam gdzie byłem eon temu za porzedniego stworzenia. Tu taj ryzyko że ksiądź zamknie jest zalerzne od wolnej energi i surowców i pomysłowości ludzi. 
 Drako drakonia te smoki były psi. Nie było pieniędzy na 2 zł lotto. 
+A co do Kristinay TX z filmu Terminator SkyNet to pewnie jakiaś dusza smoka smoczyca smok. 
