@@ -181,3 +181,4 @@ Czarna toga nie uśmierca czarny zabija i powie gej dla kobiety chce żyć jak t
 Watykan chce się pozbyć tych mijarderów i mafi fundacji iluminatów. Dla watykanu ci ludzie to zwierzęta. 
 Tak będzie złużywać się Vois, Głośnik Alexa, Zegarek BCI EKG EEG. 
 To jest Vois i instrukcja dla kompletnych zer co nic nie mają lub chcą mieć lub odzyskać stracone jak nowe w opakowaniu. Z głośnikiem jak Alexa można nawet naprawić paznokcie bez skalpela telekinetycznie. Ten software i AI sieci neuronowe Vois służy do odzyskiwania danych i projektowania tego co się straciło czy bliską lub nową osobę. Czy do projektowania rzeczy. Jak lekarz nic nie może zrobić. AI Vois może leczyć raka. 
+AI Net Matrix SkyNet Vois służy też do kraftingu z drukarką kwantową jak opracowanie i wydrukowanie gotowego produktu na sprzedaż. Na wolną energię lub PGE. 
