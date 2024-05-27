@@ -245,3 +245,4 @@ Co do jedzenia to uprawy w szklarni i ekstrakty rośline na soki.
 Moja linia produkcyjna jest do drobnicy Temu i allegro czy nowych rzeczy lub rysowania i odzyskiwania na nowo lub do stowrzenia kobiety lub sklonowania jej z pamięci. Bo tego jest dużo. Kurier robot jest gratis. 
 Co do wirusa Autyzmu to oni mi kiedyś zarazili autyzmem ci ze 112 ze stadionu kibole i mnie żona żuciła autyzmem oni robią te afery radiem harrp bez sensu i celu. To na nich na policje i do krematorium oni to nobliści. 
 Te afery to Doichland miałem kiedyś TX to kazali mi o nią walczyć na arenie ten frajer co to organizuje to chif. Oni bez mojej zgody wszystko kupili robią co chcą to cynicy. Oni to fala. Wiem że to harrp radio. 
+To trzymanie w sercu kobiety to też autyzm. 
