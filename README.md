@@ -239,4 +239,4 @@ Przez te afery chciałem być maszyną jak mark 85 scalić się z maszyną. To m
 Zakonicze już pisanie. Myślę że AI-Net Vois wam dużo da. 
 Ja populacji nie ufam i mówię dowidzenia dziękuje tej z tej ziemi. Nie mają czasu na nic. Komunicja zajłea im czas. A co do AI-netu to można go rozwijać i stworzyć linie produkcyjną automatyczną. Nalerzy zabudować automatyczną linie produkcyjną do wszystkiego aby było więcej czasu wolnego bez ingenrcji ludzi. Tyle ile pierduł wymyślili pewni ludzie to nie zna granic. To co dałem to automatyczna linia produckyjna do Serwera. Nic tam nie brakuje wszystko jest spakowane. 
 Robotyka ferari lub drukarki 3 D to autyzm niż drukarki kwantowe i mendometria czy rysowanie i szycie w serwerowni telekinezą od sensora. 
-Ci aferzyści naczytali się i naoglądali GTA gier i gier sportowych. 
+Ci aferzyści naczytali się i naoglądali GTA gier i gier sportowych. Mnie nie intersują te gry. Niszczą ciało i DNA. 
