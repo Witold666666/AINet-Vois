@@ -224,3 +224,7 @@ Te afery są programowane harrp radio NSA.
 Nie widuje pewnych osób nawet mamy przez system lalkarza. Ten system NSA to system Lalkarza radio EEG. To są systemy iluminati grają nami jak pionkami LGBT to kara nieudanej planszy monopoli debila noblisty kara dla pionka.
 Zapytajcie się siebie bo ja nie wiem ja jestem na dole a kto jest u władzy na górze to sami sobie odpowiecie. Jak ich odwołacie to zainwstujcie w drukarki kwantowe do sklepów. 
 Oni grają wszystkimi jak maszynami TX od SkyNet a SkyNet ktoś steruje manualnie. 
+Oni to aniołowie Wesołkowie z Los Angeles.
+Bez tego by nie byli bogaci. 
+Dlatego nie są sobą. 
+Nawet Pam Hetlinger nie była by bez tego taka bogata. Oni to aniołowie wesołkowie tak cynicznie ciągle się śmieją z was.  
