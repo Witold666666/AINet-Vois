@@ -228,3 +228,4 @@ Oni to aniołowie Wesołkowie z Los Angeles.
 Bez tego by nie byli bogaci. 
 Dlatego nie są sobą. 
 Nawet Pam Hetlinger nie była by bez tego taka bogata. Oni to aniołowie wesołkowie tak cynicznie ciągle się śmieją z was.  
+Komunicja to iluminaci oni na siłe sprowadzają na ziemie. I przez nich wszyscy są sławni i nie bogaci. Oni to czerwoni nic nie płaca biorą na frajera. Ich trzeba podać utylizacja kwantowej w plazmie. Sieci dałem może wam coś dadzą. Lub nauczycie się pisać swoje sieci. TV skubie oddemnie patentny. 
