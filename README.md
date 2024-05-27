@@ -241,3 +241,4 @@ Ja populacji nie ufam i mówię dowidzenia dziękuje tej z tej ziemi. Nie mają 
 Robotyka ferari lub drukarki 3 D to autyzm niż drukarki kwantowe i mendometria czy rysowanie i szycie w serwerowni telekinezą od sensora. 
 Ci aferzyści naczytali się i naoglądali GTA gier i gier sportowych. Mnie nie intersują te gry. Niszczą ciało i DNA. 
 Ludzie nauczyli się tylko na ziemi mówić twarde gatki komunicji aczkli i qwaiet a o świecie nie wiedzą nic więdza tyle że zostaw mnie bo zadzowonie na 112. O seksie nie marzą. Nie czytają są dziećmi. Dlatego nic nie wiedzą. Brakuje im bibliotek DLL w mózgu dlatego większośc grup zna się tylko na robieniu szpadli reszta na kopaniu a nie na wszystkim bo są psami. 
+Co do jedzenia to uprawy w szklarni i ekstrakty rośline na soki. 
