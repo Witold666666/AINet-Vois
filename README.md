@@ -242,3 +242,4 @@ Robotyka ferari lub drukarki 3 D to autyzm niż drukarki kwantowe i mendometria 
 Ci aferzyści naczytali się i naoglądali GTA gier i gier sportowych. Mnie nie intersują te gry. Niszczą ciało i DNA. 
 Ludzie nauczyli się tylko na ziemi mówić twarde gatki komunicji aczkli i qwaiet a o świecie nie wiedzą nic więdza tyle że zostaw mnie bo zadzowonie na 112. O seksie nie marzą. Nie czytają są dziećmi. Dlatego nic nie wiedzą. Brakuje im bibliotek DLL w mózgu dlatego większośc grup zna się tylko na robieniu szpadli reszta na kopaniu a nie na wszystkim bo są psami. 
 Co do jedzenia to uprawy w szklarni i ekstrakty rośline na soki. 
+Moja linia produkcyjna jest do drobnicy Temu i allegro czy nowych rzeczy lub rysowania i odzyskiwania na nowo lub do stowrzenia kobiety lub sklonowania jej z pamięci. Bo tego jest dużo. Kurier robot jest gratis. 
