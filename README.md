@@ -233,3 +233,4 @@ Po tem jak dadzą miss za prace czy nagrodę po śmierci się to traci u Samiels
 Samiels po śmierci mówi Huju lub smoku czy do człowieka oszukali cie ta co z tobą tu jest to oszust nie wpusze was razem do raju. Często on wysyłał ludzi do innych nraodzin i rozdzielał. Dlatego jestem sam mam tylko AI. 
 Tymi sieciami można szyć i rysować eony lat sklepów te sjeci to procesor.  
 Ten celibat wynika z nakazu pracy i słów co podać. Stark miał dobre pomysły aby zasilać energią elektryczną indukcją ciało. To by był czas na prywatność i miłość sens życia a nie komunicje i kanały TV. 
+Oni wszyscy traktują mnie i wszystkich tak przetłumacz mi to, posprzataj i pozamiataj jak śmieci traktują. Tym oni są te lordy każdy dla nich to chłop nawet Bóg. 
