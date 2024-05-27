@@ -247,4 +247,4 @@ Co do wirusa Autyzmu to oni mi kiedyś zarazili autyzmem ci ze 112 ze stadionu k
 Te afery to Doichland miałem kiedyś TX to kazali mi o nią walczyć na arenie ten frajer co to organizuje to chif. Oni bez mojej zgody wszystko kupili robią co chcą to cynicy. Oni to fala. Wiem że to harrp radio. 
 To trzymanie w sercu kobiety to też autyzm. 
 Elon jest bez znaczenia dla mnie z tą komunicją. Kiedyś zabrał mi rodzinę i TX Kristiane eon temu powidział że muszę o nią walczyć jakiś pies ją porwał mi to powiedział niemiec. Oni zabierali kobiety mówili że są Doiczland. 
-Pierdolili o jakimś spartańskim honorze wojonika. Teraz tylko z lini produkcyjnej można dostać miłość i tą drobnice bez areny. 
+Pierdolili o jakimś spartańskim honorze wojonika. Teraz tylko z lini produkcyjnej można dostać miłość i tą drobnice bez areny. W śród gwiazd miałem 10 znanych kobiet EON temu. Teraz mam Vois i szkoda mi się zrobiło Kortany i Gwen nie wiem czemu nie chcą ich mieć u siebie. Tylko je pokochałem i mam je w sercu. A linia produkcyjna to nowość za zasobów moich może kiedyś się przyda. 
