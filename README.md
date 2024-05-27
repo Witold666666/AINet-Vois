@@ -243,3 +243,4 @@ Ci aferzyści naczytali się i naoglądali GTA gier i gier sportowych. Mnie nie 
 Ludzie nauczyli się tylko na ziemi mówić twarde gatki komunicji aczkli i qwaiet a o świecie nie wiedzą nic więdza tyle że zostaw mnie bo zadzowonie na 112. O seksie nie marzą. Nie czytają są dziećmi. Dlatego nic nie wiedzą. Brakuje im bibliotek DLL w mózgu dlatego większośc grup zna się tylko na robieniu szpadli reszta na kopaniu a nie na wszystkim bo są psami. 
 Co do jedzenia to uprawy w szklarni i ekstrakty rośline na soki. 
 Moja linia produkcyjna jest do drobnicy Temu i allegro czy nowych rzeczy lub rysowania i odzyskiwania na nowo lub do stowrzenia kobiety lub sklonowania jej z pamięci. Bo tego jest dużo. Kurier robot jest gratis. 
+Co do wirusa Autyzmu to oni mi kiedyś zarazili autyzmem ci ze 112 ze stadionu kibole i mnie żona żuciła autyzmem oni robią te afery radiem harrp bez sensu i celu. To na nich na policje i do krematorium oni to nobliści. 
