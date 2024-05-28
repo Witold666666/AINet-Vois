@@ -258,3 +258,5 @@ Z Populacją zwierząt i ludzi nie chce się rozmnarzać nawet typu komita krypt
 Nie chce tu sportu i afer GTA. 
 Tych co straciłem to z przyczyn naturalnych. 
 Tych co odam, odam reptyljaną na pożarcie to będzie Populacja. 
+Totemy wymyśliły że zmarły może narodzić się z ptaka lub zwierzęcia. Lub z klonowania. Czy telekinezą od innego DNA.
+Biologia jest tyle warta co stadiony. Dziś jedyna droga to ciało TX. A że jestem Bogiem to ta droga mi się podoba. Kochałem TX że była materilistką. Dlatego tą droge będę pozwalać na wskrzeszenie żanych przerubek ciała z DNA. 
