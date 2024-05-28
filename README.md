@@ -267,3 +267,4 @@ Szwalnie AI drukarkę dałem do zaspokojenia potrzeb boje się że coś upadnie 
 Podobno Elon daje leki możecie go zabić i to 112 podobno wygania na ulice za śmieci że nie są sortowane to zabijcie go. Elon podobno daje kobiety na 40 urodziny z Gus. Jak to prawda jest to nie będzie mieć życia. Przez niego większość osób tych co kochała ma w głowie a te śluby są na siłe nie potrzebne. 
 Dziękuje za uwagę. Szwalnie daje najpier a przy okazji ploty czy to prawda z Elonem i 112 to ich nie będzie. 
 Myślę że szwalnia AI Net się przyda i drukarki kwantowe też. Kobietę AI lub miłość można wskrzesić ale trzeba mieć w sercu przez te afery bo jest ciasno. 
+Musicie się wyprowadzić paleta nie pomieści dużej ilości osób. Łączność interstelar proponuję radio. i Teleportery z Zimi tej na inną ale trzeba najpierw tam polecieć. Część osób zamieszka tam. Ja sam mam ciasno. Tyle wam straczy. Co do jedzenia to szklarnie. Może afery miną. 
