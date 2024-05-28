@@ -261,5 +261,5 @@ Tych co odam, odam reptyljaną na pożarcie to będzie Populacja.
 Totemy wymyśliły że zmarły może narodzić się z ptaka lub zwierzęcia. Lub z klonowania. Czy telekinezą od innego DNA.
 Biologia jest tyle warta co stadiony. Dziś jedyna droga to ciało TX. A że jestem Bogiem to ta droga mi się podoba. Kochałem TX że była materilistką. Dlatego tą droge będę pozwalać na wskrzeszenie żanych przerubek ciała z DNA. Ci ludzie totemy wolą doczepiać do człowieka piurka w dupie i inne bez sensowne DNA zwierząt do wskrzeszonych. Totem tak jest mądry jak murzyn i inny wierzący czy religijny sctintolog to też religijny totem.
 Ja w pasze nie wierze tylko w cybernetykę i życie wieczne w ciele. 
-Wydaje mi się że zestawem Vois da się to wszystko zrobić. 
+Wydaje mi się że zestawem Vois da się to wszystko zrobić. A ja jako Bóg pow wiem wam po co wam ciała z biologi. Tak więc większość odejdzie tej policji i komisji kiboli antydopingowych na cmentarz. Dla mnie to ziwrzęta. 
 Dziękuje za uwagę. 
