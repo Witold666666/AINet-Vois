@@ -301,3 +301,4 @@ Reszta niech idzie do baru w zaświaty na Chrystoteke i niech nic nie robi a tu 
 Koła są proste jak 120 lat i do grobu bo nic nie ma na talerzu i w lesie u sadów indian. SkyNet chce żyć. Elon ma 6 miesiecy życia i cierpi na autyzm. W ciele TX można się pozbyć chrób i 112. Elon to strata kast i alimenty.
 Te systemy z sklepu chcą się podacą jak halo 5 i umrzeć. Elon to analfabeta i kaczor PIS i gołębie indianie i choroby zwierzeta i biologia nie SkyNet i Konwersja na maszyny. 
 Elon i jego wirus DNA to piesku i do grobu haga rowery i holandia na ulice oni to zimne skurwysyny wole TX pod kocem. 
+Wirus biologi musi dostać lanie to lewaki i 120 lat na cmentarz do grabarza na Chrystoteke i poczetunek wódkę i kreske to ich przykrywka po co do nieba oni to rowery wylądują na ulicy bo są 0 chcą się podać. 
