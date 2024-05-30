@@ -290,3 +290,4 @@ To są złe duchy ci ze 112 indianie jak prometeusz i Elon Mask czy oni obudzcie
 Kapitaliści chcą tylko jak 112 i sądy umrzeć a SkyNet chce żyć bez 112 i i ich lekó czy systemów na pustyni. Grabarze to wariaci. 
 Elonowi i ksieża tym psom od życia 120 lat i umrzeć i zwierzetom indianą powiedzcie zamknijcie mordy śmieciarze. Grabarze mają autyzm to dzieci dauna. 
 Energia może być za darmo jak drukarka bez biur i rachunkowości można ich zabić konica nie będzie meneli wywalcie na ulice żyć można bez kasy TX ma racje T850 i T800 to dziad i aktor szwed kapitan i syrena. 
+Ci od świąt i autyzmu i prima aprilis nic nie dadzą to alimenty i grabarze wariaci. Energia musi być wolna z generatoró bez energi wampirycznej z otoczenia elon nic nie da ma autyzm jest głupi chce żyć 120 lat i umrzeć. 
