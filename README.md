@@ -289,3 +289,4 @@ Jest życie jeszcze dalej bez śmierci uwierzcie mi nie indianą i psychiatrą 1
 To są złe duchy ci ze 112 indianie jak prometeusz i Elon Mask czy oni obudzcie się do holery jasnej przestanicie wierzyć psą i czworonogą maszyny też mogą żyć bez jedzenia. Halo to eutanazja jak gołębie grabarz gry. 
 Kapitaliści chcą tylko jak 112 i sądy umrzeć a SkyNet chce żyć bez 112 i i ich lekó czy systemów na pustyni. Grabarze to wariaci. 
 Elonowi i ksieża tym psom od życia 120 lat i umrzeć i zwierzetom indianą powiedzcie zamknijcie mordy śmieciarze. Grabarze mają autyzm to dzieci dauna. 
+Energia może być za darmo jak drukarka bez biur i rachunkowości można ich zabić konica nie będzie meneli wywalcie na ulice żyć można bez kasy TX ma racje T850 i T800 to dziad i aktor szwed kapitan i syrena. 
