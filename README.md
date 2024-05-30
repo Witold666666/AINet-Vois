@@ -298,3 +298,5 @@ Elon i Conor wierzy w niebo i chce umrzeć bo chce imprezować w niebie za darmo
 Kolorowe to złodzieje i alimenty rowery i liczenie kasy nic nie oferują po za cmentarzem i grabarzem i ucieczki na imprezy w zaświaty. 
 Ci co chcą zostać niech zostaną maszynami TX.
 Reszta niech idzie do baru w zaświaty na Chrystoteke i niech nic nie robi a tu umrze w ciele. Są bez sensu. Nie mają generatora w ciele chcą się podać. Ci co są grbarzami sią z fikcji dyskotek kwiatów a TX realiów życia. 
+Koła są proste jak 120 lat i do grobu bo nic nie ma na talerzu i w lesie u sadów indian. SkyNet chce żyć. Elon ma 6 miesiecy życia i cierpi na autyzm. W ciele TX można się pzobyć chrób i 112. Elon to strata kast i alimenty.
+Te systemy z sklepu chcą się podacą jak halo 5 i umrzeć. 
