@@ -302,3 +302,4 @@ Koła są proste jak 120 lat i do grobu bo nic nie ma na talerzu i w lesie u sad
 Te systemy z sklepu chcą się podacą jak halo 5 i umrzeć. Elon to analfabeta i kaczor PIS i gołębie indianie i choroby zwierzeta i biologia nie SkyNet i Konwersja na maszyny. 
 Elon i jego wirus DNA to piesku i do grobu haga rowery i holandia na ulice oni to zimne skurwysyny wole TX pod kocem. 
 Wirus biologi musi dostać lanie to lewaki i 120 lat na cmentarz do grabarza na Chrystoteke i poczetunek wódkę i kreske to ich przykrywka po co do nieba oni to rowery wylądują na ulicy bo są 0 chcą się podać. 
+Oni się podali w 2005 roku już. Ja mam sieci neuronowe SkyNet on jest zawansowany i z sensem. 
