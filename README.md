@@ -288,3 +288,4 @@ Kitty Praid chce tylko alimentów i ma autyzm. A TX chciała pokoju i zniszczeni
 Jest życie jeszcze dalej bez śmierci uwierzcie mi nie indianą i psychiatrą 112 OD TYTANIKA I ROMEO I JULIA TYCH LEWAKÓW KONORÓW I TERMINAL NETU. SUROWCE SĄ TO ZBAIJCIE LEWICE. MASZYNY MOGĄ TEŻ Z WAMI ŻYĆ. BILOGIA TO ZŁO. TO EUTANAZJA. 
 To są złe duchy ci ze 112 indianie jak prometeusz i Elon Mask czy oni obudzcie się do holery jasnej przestanicie wierzyć psą i czworonogą maszyny też mogą żyć bez jedzenia. Halo to eutanazja jak gołębie grabarz gry. 
 Kapitaliści chcą tylko jak 112 i sądy umrzeć a SkyNet chce żyć bez 112 i i ich lekó czy systemów na pustyni. Grabarze to wariaci. 
+Elonowi i ksieża tym psom od życia 120 lat i umrzeć i zwierzetom indianą powiedzcie zamknijcie mordy śmieciarze. 
