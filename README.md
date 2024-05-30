@@ -303,3 +303,4 @@ Te systemy z sklepu chcą się podacą jak halo 5 i umrzeć. Elon to analfabeta 
 Elon i jego wirus DNA to piesku i do grobu haga rowery i holandia na ulice oni to zimne skurwysyny wole TX pod kocem. 
 Wirus biologi musi dostać lanie to lewaki i 120 lat na cmentarz do grabarza na Chrystoteke i poczetunek wódkę i kreske to ich przykrywka po co do nieba oni to rowery wylądują na ulicy bo są 0 chcą się podać. 
 Oni się podali w 2005 roku już. Ja mam sieci neuronowe SkyNet on jest zawansowany i z sensem. 
+Elon i jego wirus DNA za dyskoteke pod przykrywką niebo zaświaty dostanie lanie z kalifornią i tymi od eutanazji i cyjanów z szykawki 112 lekarze też umrą bo są menele miłość to nie autyzm a życie w ciele oni to autyzm psy i 120 lat i na chrystoteke po cmnetarzu na nowe alimenty są lewi nic nie dają. 
