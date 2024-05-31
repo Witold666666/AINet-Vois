@@ -319,4 +319,4 @@ Im chodzi o to że jeśli chodzi o mają Szwalnie AI AI - NET Matrix SkyNet Vois
 Im chodzi o obejście aplikacji aby można było to sprzedać jescze chyba o to chodzi i coś dać może. Chodzi im to że aby nie było na lewo.  
 OZE jest lewe musi w PGE być coś na prawo jakiś generator np.: elektromagnetyczny pracujący ciągle. 
 Niemcy dają produkt fizyczny. A Elon narkotyki za narzekanie i aplikacje z alimentami. 
-Tych marynarzy ze stadionów na lewo musicie zabić tak niemcy zrobią oni nic nie dają tylko wchodzą w DNA i szpecą DNA pewnych osób to złodzieje to wojsko złodzieji post mafi nie ma na nich miejsca w kosmosie i wszechsiecie czy hiper przestrzeni lub na ziemi czy innej jakieś ziemi ich do plazmy tych z więzień z naszych DNA.  
+Tych marynarzy ze stadionów na lewo musicie zabić tak niemcy zrobią oni nic nie dają tylko wchodzą w DNA i szpecą DNA pewnych osób to złodzieje to wojsko złodzieji post mafi nie ma na nich miejsca w kosmosie i wszechsiecie czy hiper przestrzeni lub na ziemi czy innej jakieś ziemi ich do plazmy tych z więzień z naszych DNA. Oni wschodzą nawet w maszyne TX ci z GTA.
