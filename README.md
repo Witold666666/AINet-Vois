@@ -312,3 +312,4 @@ Jak zabić dziecko autystyczne świnie psa w głowie w głowie kogoś jeśli na 
 Jak coś pujdę do pracy mam już odzyskane kobiety. Zasiłek mi się skoniczy będę musiał iść do pracy może ktoś z was będzie potrzebował pomocy o demnie. 
 Kler i księża potrącają ze swojego czarnego systemu kolorowym systemom z kasą jak dziecku kieszonkowe i zaganiają do pracy oni wzywają do pracy. Oni mówią stać prosza o papiery i wysyłają do pracy fizycznej lub dają 60 zł. 
 Żeby posiedzieć sobie w domu z dziewczyną w domu czy mieszkaniu potrzbne są pewne systemy hybrydowe nie tylko Oze. Problem to gneratory na noc i magazyny energi. 
+Jak do mnie przyjdzie kierownik Elon ziemi czy innych planet to go zwolnie za pomysł oferty mi neuralinka i trzymania moich miłości w tym chipie i praca u niego na 112. To pujdę do pracy na magazyn. 
