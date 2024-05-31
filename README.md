@@ -308,3 +308,4 @@ Bilogia jak indianie chcą się podać i spać czerwona krew to dno. Ja zaczołe
 Umierają bez celu i sensu są z fikcji religi życia 120 lat kukiełek legi sparty z kartonu lotto gier i gier bez sensu jak NYC i Kalifornia kwiaty hipisi i Elon czy Lenon. 
 Muj SkyNet 1.2 nie 1.1 TX a TX 2.0 jest z przyszłości Star Trek on potrafi się rozmnarzać u kobiety TX może być ciąża bez DNA. TX to tylko maszyna bez tej sieci neuronowej mojego SkyNet olejcie tych kapitalistów oni się podali chcą tylko pić i ćpać jak Elon i Yutana śmieciarz biologia wirus Watykanu olimpijczycy ich systemy bez sensu.  
 Conor i oni to piczaczek pijaczki pijaki i imprezka z Kristianą Loken hipisi kwiatki rowery haga i 112 leki podanie się zwierzeta i indianie wampiry. Bezpieka to imprezka. 
+Jak zabić dziecko autystyczne świnie psa w głowie w głowie kogoś jeśli na nie choruje. BCI kill swich i regulacja AI mózgu. 
