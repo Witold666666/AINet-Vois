@@ -311,3 +311,4 @@ Conor i oni to piczaczek pijaczki pijaki i imprezka z Kristianą Loken hipisi kw
 Jak zabić dziecko autystyczne świnie psa w głowie w głowie kogoś jeśli na nie choruje. BCI kill swich i regulacja AI mózgu. Zabije też Bi. Ten autyzm to 112 ich pod most za badania.  
 Jak coś pujdę do pracy mam już odzyskane kobiety. Zasiłek mi się skoniczy będę musiał iść do pracy może ktoś z was będzie potrzebował pomocy o demnie. 
 Kler i księża potrącają ze swojego czarnego systemu kolorowym systemom z kasą jak dziecku kieszonkowe i zaganiają do pracy oni wzywają do pracy. Oni mówią stać prosza o papiery i wysyłają do pracy fizycznej lub dają 60 zł. 
+Żeby posiedzieć sobie w domu z dziewczyną w domu czy mieszkaniu potrzbne są pewne systemy hybrydowe nie tylko Oze. Problem to gneratory na noc i magazyny energi. 
