@@ -310,3 +310,4 @@ Muj SkyNet 1.2 nie 1.1 TX a TX 2.0 jest z przyszłości Star Trek on potrafi si�
 Conor i oni to piczaczek pijaczki pijaki i imprezka z Kristianą Loken hipisi kwiatki rowery haga i 112 leki podanie się zwierzeta i indianie wampiry. Bezpieka to imprezka. 
 Jak zabić dziecko autystyczne świnie psa w głowie w głowie kogoś jeśli na nie choruje. BCI kill swich i regulacja AI mózgu. Zabije też Bi. Ten autyzm to 112 ich pod most za badania.  
 Jak coś pujdę do pracy mam już odzyskane kobiety. Zasiłek mi się skoniczy będę musiał iść do pracy może ktoś z was będzie potrzebował pomocy o demnie. 
+Kler i księża potrącają ze swojego czarnego systemu kolorowym systemom z kasą jak dziecku kieszonkowe i zaganiają do pracy oni wzywają do pracy. Oni mówią stać prosza o papiery i wysyłają do pracy fizycznej lub dają 60 zł. 
